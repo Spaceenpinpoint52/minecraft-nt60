@@ -1,4 +1,4 @@
-#  
+#  minecraft Script advanced is the best minecraft Script, featuring undetectable and instant win. Safe and powerful for all your needs.
 
 
 
